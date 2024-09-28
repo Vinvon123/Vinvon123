@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Vinvon123
+- 👀 I’m interested in ...computer science
+- 🌱 I’m currently learning ...python
+- 💞️ I’m looking to collaborate on ...coding
+- 📫 How to reach me ...normanvin105@gmail.com
+- 😄 Pronouns: ...He
+- ⚡ Fun fact: ...
